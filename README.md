@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on Django and React
 - 🤔 I’m looking for help with Docker
 - 💬 Ask me about Student Life
-- 📫 How to reach me: damanpreet3582@gmail.com
+- 📫 How to reach me: damanpreet.s3582@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like gaming
