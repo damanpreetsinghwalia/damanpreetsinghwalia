@@ -7,4 +7,4 @@
 - 💬 Ask me about Student Life
 - 📫 How to reach me: damanpreet3582@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I can Dance
+- ⚡ Fun fact: I like gaming
